@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning more.
 - 🌱 I’m currently in class 11th
 - 💞️ I’m looking to collaborate on Google 
-- 📫 How to reach me contact at rohitthakur021108@gmail.com
+- 📫 How to reach me contact at ____
 - 😄 Pronouns: Rohiz
 - ⚡ Fun fact:  I am boy😂.
 
